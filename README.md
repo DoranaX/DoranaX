@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @DoranaX
+- DoraneX#7777- Discord
+- Novice programmer
